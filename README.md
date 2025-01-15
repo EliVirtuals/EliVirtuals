@@ -31,11 +31,10 @@ To leverage my expertise in administrative management, customer interaction, and
 ---
 
 ## Let's Connect!
+## Let's Connect!
 
 - 💼 [LinkedIn](https://www.linkedin.com/in/elijah-simiyu) *(Connect with me on LinkedIn)*
 - 📧 [Email Me](mailto:esimiyu368@gmail.com) *(Email me)*
-- Instagram @_yung_eli
-- Facebook @
-- X(Twitter)
-- 
-
+- 📸 [Instagram](https://www.instagram.com/_yung_eli?igsh=Mm0ydHp3ZzgzcGE=) *@_yung_eli*
+- 🌐 [Facebook](https://www.facebook.com/elijah.hart.9847?mibextid=ZbWKwL) *(Elijah Hart)*
+- 🐦 [X (Twitter)](https://x.com/elijahsimiyu17?t=K7vFs5bKigjp-1LHib4vEg&s=09) *(Follow me on Twitter)*
