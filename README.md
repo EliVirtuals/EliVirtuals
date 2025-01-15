@@ -31,7 +31,11 @@ To leverage my expertise in administrative management, customer interaction, and
 ---
 
 ## Let's Connect!
-- 🌐 [Portfolio](#) *(Replace with your portfolio link)*
+
 - 💼 [LinkedIn](https://www.linkedin.com/in/elijah-simiyu) *(Connect with me on LinkedIn)*
-- 📧 [Email Me](mailto:your-email@example.com) *(Replace "your-email@example.com" with your actual email)*
+- 📧 [Email Me](mailto:esimiyu368@gmail.com) *(Email me)*
+- Instagram @_yung_eli
+- Facebook @
+- X(Twitter)
+- 
 
