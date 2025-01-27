@@ -30,7 +30,17 @@ To leverage my expertise in administrative management, customer interaction, and
 
 ---
 
-## Let's Connect!
+## Projects
+
+<img src="Meeting 3.png" alt="My Profile Picture" style="width: 500px; border-radius: 50%;">
+<img src="Meeting.png" alt="My Profile Picture" style="width: 500px; border-radius: 50%;">
+<img src="Online Research 1.png" alt="My Profile Picture" style="width: 500px; border-radius: 50%;">
+<img src="Travel 2.png" alt="My Profile Picture" style="width: 500px; border-radius: 50%;">
+<img src="Travel 3.png" alt="My Profile Picture" style="width: 500px; border-radius: 50%;">
+<img src="Travel 4.png" alt="My Profile Picture" style="width: 500px; border-radius: 50%;">
+<img src="Travel Plan 3.png" alt="My Profile Picture" style="width: 500px; border-radius: 50%;">
+<img src="Travel Plan.png" alt="My Profile Picture" style="width: 500px; border-radius: 50%;">
+<img src="Travel.png" alt="My Profile Picture" style="width: 500px; border-radius: 50%;">
 ## Let's Connect!
 
 - 💼 [LinkedIn](https://www.linkedin.com/in/elijah-simiyu) *(Connect with me on LinkedIn)*
